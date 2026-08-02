@@ -1,1 +1,0 @@
-# SHAKO-CV
